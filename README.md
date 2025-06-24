@@ -7,4 +7,4 @@
 - 💬 Ask me about my anything about coding.
 - 📫 How to reach me: ankitpanditwork120@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I think i'm made for doing strange things.
+- ⚡ Fun fact: I love playing cricket and travelling!
